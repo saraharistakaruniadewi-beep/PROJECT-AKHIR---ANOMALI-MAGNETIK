@@ -1,0 +1,1 @@
+ANOMALI MAGNETIK adalah (lanjutkeun)
